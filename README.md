@@ -1,1 +1,1 @@
-# calendar-notes-app-ads
+google.com, pub-7439839127460752, DIRECT, f08c47fec0942fa0
